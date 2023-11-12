@@ -1,0 +1,1 @@
+Juan P. Garces, I live in the beautiful city of Tampa, Florida 🌴 🌞. I like being outdoors, being around water 🌊 and playing sports, and recently started playing pickleball as a new hobby. I am a Sofware Developer 💻 at BadgePass.
